@@ -1,2 +1,0 @@
-# collab-
-via the internet
